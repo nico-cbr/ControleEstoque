@@ -1,0 +1,2 @@
+# compartilhado
+compartilhado em conjunto
